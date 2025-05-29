@@ -1,0 +1,2 @@
+
+I am very dedicated and motivated to grow in field of data analysis and IT field. My passion for mathematics and finances, both of which were part of my engineering degree, supports my strong analytical thinking. Combine with solid communication skills, I bring many of the qualities you are looking for in this position. ...![image](https://github.com/user-attachments/assets/75770183-3f59-40e9-bb84-478b571b072a)
